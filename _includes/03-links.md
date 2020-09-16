@@ -1,1 +1,1 @@
-![Profile Link](https://github.com/Hsabkar126)
+[GitHub Profile](https://github.com/Hsabkar126)
